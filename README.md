@@ -32,3 +32,5 @@ https://www.paypal.com/paypalme/iHayri67
 https://www.patreon.com/Hayri1
 
 https://www.thingiverse.com/Hayri/designs
+
+Note: The links above are referral links. If you buy something through them, I might get a small commission at no extra cost to you. Thanks for the support!
